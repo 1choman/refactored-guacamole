@@ -1,4 +1,10 @@
-
+Hi there
+I'm current y wor Ing on
+I'm looking to collaborate on
+I'm looking for help with
+I'm currently learning
+Ask me about
++ Fun fact
 ## 🌐 Socials:
 [![Facebook](https://img.shields.io/badge/Facebook-%231877F2.svg?logo=Facebook&logoColor=white)](https://facebook.com/https://m.facebook.com/?paipv=0&eav=AfaMOHJmaDvj3UA5zTMGT9Rn2wtW9tdQOPmlL6_Z0XSnOFHf-pqumHXSrqmMvNUzSVY&_rdr) [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/https://www.instagram.com/?hl=en) [![Reddit](https://img.shields.io/badge/Reddit-%23FF4500.svg?logo=Reddit&logoColor=white)](https://reddit.com/user/choman1996salah@gmail.com) 
 
